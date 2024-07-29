@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: gmail .
 - 😄 Pronouns: none.
 - ⚡ Fun fact: none.
-- :
+- I like to mess with car sound.
+
